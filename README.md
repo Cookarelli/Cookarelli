@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Cookarelli
-- 👀 I’m interested in NFTs and the crypto space.
+- 👀 im currently an aop devekoper. 
 - 🌱 I’m currently learning Discord management and Smart Contracts
 - 💞️ I’m looking to collaborate on any NFT projects with a unique utility that are worth my time and effort
 - 📫 How to reach me https://www.upwork.com/freelancers/~012166b426bdd0447d
